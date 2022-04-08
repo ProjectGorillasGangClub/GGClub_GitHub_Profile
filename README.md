@@ -4,6 +4,7 @@
 make a reality, more than four billion people will unite in the blockchain network!
 - 💞️ I'm looking to the future and I want to collaborate with companies like Binance, KuCoin, ByBit, Huobi Global, Vlaunch and many other giants in 
 the blockchain industry!
+- Now is the phase of active search for strategic partners and investors!
 - 📫 Email: ibakhtubayev@vk.com, ibakhtubayev@gmail.com, ibahtubaev@icloud.com, ceo@arpad.io
 - What'sapp: +77772755529
 - Telegram: @phoenixeth
