@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Iskander Bakhtubayev, Founder iMeta Corporation, CEO MetaGram & CEO Project Gorillas Gang Club
+- 👋 Hi, I’m @Iskander Bakhtubayev, Founder iMeta Corporation & CEO Project Gorillas Gang Club
 - 👀 I strive to develop social networks in the metaverse, as well as to implement a project with the most powerful decentralization in the world!
 - 🌱 My life mission is to show the world community how valuable the blockchain industry is! Thanks to the projects that I came up with and want to 
 make a reality, more than four billion people will unite in the blockchain network!
